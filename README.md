@@ -1,1 +1,1 @@
-# Proposal 🌺<
+# Proposal 🌺
